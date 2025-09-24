@@ -1,12 +1,12 @@
 # About Me
 
-I honestly dont know what my fav hobby is
+*I honestly dont know what my fav hobby is*
 
-i like volleyball cuz its fun i play with ppl at the park first
+**i like volleyball cuz its fun i play with ppl at the park first**
 
-as much as i can?
+*as much as i can?*
 
-fun
+**fun**
 
 i found a volleyball at the park (**NOT STOLEN**)
 
